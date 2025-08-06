@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding and Web Development
 - 🌱 I’m currently learning Web Development
 - 📫 How to reach me ->
-  - 𝕛𝕒𝕜𝕚𝕣𝕟𝕠𝕓𝕪@𝕘𝕞𝕒𝕚𝕝.𝕔𝕠𝕞
+  - 𝔼-𝕞𝕒𝕚𝕝->𝕛𝕒𝕜𝕚𝕣𝕟𝕠𝕓𝕪@𝕘𝕞𝕒𝕚𝕝.𝕔𝕠𝕞
   - [𝕗𝕒𝕔𝕖𝕓𝕠𝕠𝕜](https://www.facebook.com/jnp.jakirun)
 
 
